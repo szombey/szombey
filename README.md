@@ -1,4 +1,8 @@
 <div align="center">
+
+### [pronouns.cc](https://pronouns.cc/@szombey) - check it out!
+
+<br>
 hi, haven't been active in a while!
 <br><br>
 i've kind of been on a whole personal journey...?? starting my final year of high-school has also been stressful, so that doesn't help 🤞
