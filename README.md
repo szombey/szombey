@@ -2,9 +2,9 @@
 
 ### [pronouns.cc](https://pronouns.cc/@szombey) - check it out!
 
+### will be adding strawpage soon.
+
 <br>
-hi, haven't been active in a while!
+hi, haven't been active in a while! sorry!
 <br><br>
-i've kind of been on a whole personal journey...?? starting my final year of high-school has also been stressful, so that doesn't help 🤞
-<br><br>
-among other things, i'm just mainly trying to ease back into the ponytown community. there are some great aspects, of course, but i have seldom had a perfect time on that game...! so please interact cautiously; i'm still weary about this game haha.
+i'm just mainly trying to ease back into the ponytown community. there are some great aspects, of course, but i'd be lying if i said the playerbase was entirely 'welcoming'...! so please interact cautiously; i'm still weary about this game haha.
