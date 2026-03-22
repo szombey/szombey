@@ -2,7 +2,7 @@
 
 ### [pronouns.cc](https://pronouns.cc/@szombey) - check it out!
 
-### will be adding strawpage soon.
+### [strawpage](https://szombey.straw.page) - read before int
 
 <br>
 hi, haven't been active in a while! sorry!
